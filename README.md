@@ -10,10 +10,10 @@ I'm Bryan and I make dumb things on computers.
 
 ### You are here
 
-* [Timeline](https://) - your entire life, everyone you know
-* [Mirror Years](https://) - alternate dimensional avatar testing
-* [Argus](https://) - No
-* [Where are my shoes](https://) - 
+* [Jackleg Timeline](https://) - your entire life, everyone you've ever known
+* [Mirrored Year](https://) - alternate dimensional avatar testing
+* [Ribald Argus](https://) - necessity is the mother of inversion
+* [Where are my shoes](https://) - not there either
 
 ### Please don't visit
 
